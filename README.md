@@ -2,4 +2,4 @@
 
 ## OSS 실습!
 
-![img](https://www.kiasportage.net/files/attach/images/7401610/149/446/007/%ED%95%98%EB%8A%98.jpg)
+![img](https://www.light-of-truth.org/wp-content/uploads/2015/10/%E1%84%87%E1%85%A7%E1%86%AF-%E1%84%92%E1%85%A1%E1%84%82%E1%85%B3%E1%86%AF%E1%84%8B%E1%85%B3%E1%86%AF-%E1%84%87%E1%85%A1%E1%84%85%E1%85%A1%E1%84%87%E1%85%A9%E1%84%86%E1%85%A7-%E1%84%8B%E1%85%A1%E1%86%AF%E1%84%80%E1%85%A6-%E1%84%83%E1%85%AC%E1%86%AB-%E1%84%87%E1%85%B5%E1%84%86%E1%85%B5%E1%86%AF.jpg)
